@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I’m a university student with a strong interest in design, technology, and building things from ideas.
+My name is Yuri and i’m a university student with a strong interest in design, technology, and building things from ideas.
 
 I enjoy designing and creating anything that comes to mind—from small experiments to full projects. If an idea pops into my head, I usually try to design it, prototype it, and learn something new from it.
 
