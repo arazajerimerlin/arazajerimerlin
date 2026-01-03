@@ -17,6 +17,9 @@ Experiments to understand new tools and concepts
 Fun Facts:
 
 My favorite anime is Hellsing and Bleach
+
 I'm half Filipino and Cambodian but i cannot speak Tagalog
+
 I have a voice assistant named Stark
+
 Hobbies: Gaming, Gym, Coding, Reading....
